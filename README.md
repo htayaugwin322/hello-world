@@ -1,3 +1,3 @@
 # hello-world
 Testing
-Hola hola hola aloha aloha puta
+If you wait for the waiter, does that make you the waiter? *mind blown*
